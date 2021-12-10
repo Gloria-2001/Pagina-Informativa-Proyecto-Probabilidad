@@ -1,1 +1,1 @@
-# Pagina-Informativa-Proyecto-Probabilidad
+# Página-Informativa-Proyecto-Probabilidad
